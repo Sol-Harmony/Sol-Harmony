@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Hamza, aka @Sol-Harmony
-- 👀 I’m interested in Basketball and other sports, going out with friends, Art, Languages, Cars, and Guitars -> MUSIC!!!
+- 👀 I’m interested in Basketball and other sports, going out with friends, Art, Languages, Cars, and Guitars/Music
 - 🌱 I’m currently studying computer science
 - 📫 Find me on Discord: solharmony#5603
 
